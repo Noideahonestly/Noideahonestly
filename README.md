@@ -2,7 +2,7 @@
 - 👀 I’m interested in drugs
 - 🌱 I’m currently learning sex
 - 💞️ I’m looking to collaborate on dying
-- 📫 How to reach me: 52° 31' 27.73" N //// 13° 24' 37.91" E
+- 📫 How to reach me:  42°26′05″N // 83°59′06″W
 - 😄 Pronouns: intel/nvidia
 - ⚡ Fun fact: every second, 4 babies die.
 
